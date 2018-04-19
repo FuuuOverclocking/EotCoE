@@ -1,2 +1,2 @@
 # EotCoE: The Evolution of the Concept of Employment...
-...是我们组暑假划水项目
+...是我们组暑期划水项目
